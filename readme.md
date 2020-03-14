@@ -5,7 +5,7 @@
 对美术有兴趣，有一定基础的苏中同学欢迎加入我们。有宣传，市场营销经验和能力的同学同样会得到热烈欢迎。   
 群号: `166461465`   
 
-<a target="_blank" href="https://shang.qq.com/wpa/qunwpa?idkey=896fc2472c978f2e11368c1f9cd64330c8c260d313f45cd2be50c11947714e74"><img border="0"  src="group.png" alt="拾泉画室纳新" title="拾泉画室纳新"></a>   
+<a target="_blank" href="https://qm.qq.com/cgi-bin/qm/qr?k=yzy6HLQ4_zcaNGxK78n9DNCBp16NLknB&authKey=i3FfT36nFIyI9xjXaH43lOdf98LVJ1gMSjHjAmJgMwyzOhkW8YQ2SQ=="><img border="0"  src="group.png" alt="拾泉画室纳新" title="拾泉画室纳新"></a>   
 
 喜欢苏州中学，希望加入苏州中学大家庭的学弟学妹们，欢迎与我们联系。这里有苏中点击的学长学姐为你答疑解惑，预祝你实现梦想，进入苏中，与我们共同努力。
 
