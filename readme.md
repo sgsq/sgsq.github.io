@@ -18,3 +18,7 @@
 提子置于圆桌之上，挣扎求生的人们围聚一堂，一场关乎生死的会议即将开始……
 
 [正文](OurStory "提子与圆桌")
+
+### 进入后台
+
+[管理](https://sgsq.pythonanywhere.com/f/index.html "管理员")
